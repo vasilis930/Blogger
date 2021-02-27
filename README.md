@@ -1,1 +1,1 @@
-# Blogger
+# https://techandmania.blogspot.com
